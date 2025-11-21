@@ -29,6 +29,3 @@ dnc my skins plss... .ᐟ.ᐟ thank yoouuuuu.. (˵¯̴͒ꇴ¯̴͒˵)
 
 <p align="center">
 strawpge will be done when i feel like it LOL. 🌀
-
-
-</p>
